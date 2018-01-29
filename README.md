@@ -5,8 +5,8 @@ What is the Crypto World Trust?
 ----------------
 
 The Crypto World Trust is a digital currency fund addressing the
-financial needs of minor & independant nation-states while inherently
-maintaining their sovereignity by circumventing dependance upon
+financial needs of minor & independent nation-states while inherently
+maintaining their sovereignty by circumventing dependence upon
 traditional means of national developement through alignment with
 major Blocs or Superpowers, and entities such as the I.M.F.
 
@@ -21,7 +21,7 @@ the Trust from their native population.
 
 
 The Crypto World Trust is to be fueled by the endorsement of participants
-from independant investors, to national Governments participating in &
+from independent investors, to national Governments participating in &
 benefitting from the C.W.T. fund, and Cryptocurrency at large would sooner
 gain rapid legitimacy amongst the many nations of the world. 
 Truly, a global revolution.
