@@ -26,4 +26,3 @@ benefitting from the C.W.T. fund, and Cryptocurrency at large would sooner
 gain rapid legitimacy amongst the many nations of the world. 
 Truly, a global revolution.
 
-
